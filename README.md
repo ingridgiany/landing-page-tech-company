@@ -1,3 +1,1 @@
-# landing-page-technology-company
-
 
